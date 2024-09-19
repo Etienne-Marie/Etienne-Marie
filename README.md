@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Etienne-Marie
+- 👀 I’m interested in GenAi serving business, especially to gain time and improve efficiency. 
+- 🌱 I’m currently learning everything.
+- 📫 How to reach me: etienne@botresources.ai
+- ⚡ Fun fact: proud father of four
